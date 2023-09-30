@@ -1,0 +1,1 @@
+Stealthburner LGX with EBB42 and filament sensor by will665123 on Thingiverse: https://www.thingiverse.com/thing:5978225
